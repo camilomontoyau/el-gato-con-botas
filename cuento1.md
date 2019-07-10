@@ -27,3 +27,29 @@ El rey nunca había oído hablar de tal noble, pero los conejos tenían tan buen
 -Gracias por este presente, gato –dijo el rey-. Asegúrate que tu amo reciba mi gratitud y dile que es bienvenido en nuestra corte.
 
 El gato desbordaba de júbilo y rápidamente fue a poner al tanto a su dueño, incapaz de comprender la estrategia de su felino. Este le pidió que lo dejara actuar, que llegado el momento comprendería de qué iba todo.
+
+El día después de haber cazado los conejos y regalárselos al monarca, el gato repitió su operación. Esa vez, la presa fueron dos perdices y a cambio recibió una propina del rey, que vino muy bien al joven que heredó tan astuto gato con botas.
+
+El tiempo fue pasando y por varios meses el gato llevó el resultado de su caza al rey, que siempre le daba algo a cambio y le manifestaba su interés por conocer al Marqués que tantos detalles tenía con él.
+
+Pero resulta que un día las condiciones que el singular felino requería para pasar a la siguiente etapa de su plan se materializaron.
+
+El rey salió en su carruaje junto a su hija, la bella princesa de la comarca, a dar un paseo por la ribera del río.
+
+Enterado de esto, el gato instó a su amo a meterse en el río en paños menores y le pidió que lo dejase actuar y solo le siguiese el rollo.
+
+El joven hizo tal cual le pidió el gato sin cuestionarse nada. En definitiva, llevaba ya varios meses viviendo del dinero que su astuto compañero animal le llevaba cada día.
+
+Cuando el carruaje pasó por las cercanías del sitio exacto en el que el joven se bañaba, el gato comenzó a gritar:
+
+-Auxilio, auxilio! Unos ladrones han asaltado a mi amo y se han llevado su ropa. Por eso está en el río, avergonzado y sin poder salir.
+
+Apenas lo escuchó el rey mandó a detener su caravana. Había reconocido al gato y preocupado por la suerte del noble Marqués de Carabás, le pidió al gato que le contase la historia con lujo de detalles.
+
+Así lo hizo el gato y ganó la solidaridad del monarca, que ordenó dar ropas lujosas al Marqués, para que pudiera salir del agua.
+
+Cuando esto estuvo hecho el rey trabó inmediata confianza con el supuesto noble que había estado regalándole el resultado de su habilidad para la caza durante meses.
+
+El joven hijo de un pobre molinero había ganado en astucia desde el momento en que heredó a su gato con botas, razón por la que comprendió de inmediato el sentido de todo lo que había estado haciendo su suerte de mascota.
+
+De esta forma, aceptó la invitación del rey a acompañarlo a él y su hija en el carruaje, durante el resto del paseo.
