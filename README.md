@@ -1,3 +1,5 @@
+# el-gato-con-botas
+
 Versión 1: Cuento de El gato con botas
 Érase una vez un viejo molinero que tenía tres hijos. El molinero solo tenía tres posesiones para dejarles cuando muriera: su molino, un asno y un gato. Estaba en su lecho de muerte cuando llamó a sus hijos para hacer el reparto de su herencia.
 
@@ -34,8 +36,6 @@ A lo que el gato contestó: – “¡Sorprendente! ¡Ha sido increíble! Pero me
 El ogro ansioso por impresionar al gato, se convirtió en un segundo en un diminuto ratón, pero apenas lo hizo el gato se lanzó sobre él y se lo tragó de un bocado.
 
 Fue así como el gato reclamó aquel palacio y las tierras circundantes para el recién nombrado Marques de Carabás, su joven amo. Allí recibió al rey, que impresionado ante el lujo y la majestuosidad del castillo, le propuso de inmediato la mano de su hija en matrimonio. El hijo del molinero aceptó y luego de que el rey murió gobernó aquellas tierras, al lado de el gato con botas a quien nombró primer ministro.
-
-
 
 Versión 2: Cuento de El gato con botas
 Érase una vez un molinero que tenía tres hijos, a los que quería por igual. Sin embargo, el molinero era muy pobre y por eso cuando murió tan solo tenía para darles en herencia a sus hijos el molino, un burro y un gato, en apariencia bastante común.
