@@ -2,6 +2,8 @@
 
 # Versión 1: Cuento de El gato con botas
 
+![alt text](https://slm-assets3.secondlife.com/assets/20942914/view_large/31594306_lOGlRBcF_c.jpg?1530105681)
+
 Érase una vez un viejo molinero que tenía tres hijos. El molinero solo tenía tres posesiones para dejarles cuando muriera: su molino, un asno y un gato. Estaba en su lecho de muerte cuando llamó a sus hijos para hacer el reparto de su herencia.
 
 –“Hijos míos, quiero dejarles lo poco que tengo antes de morir”, les dijo. Al hijo mayor le tocó el molino, que era el sustento de la familia. Al mediano le dejó al burro que se encargaba de acarrear el grano y transportar la harina, mientras que al más pequeño le dejó el gato que no hacía más que cazar ratones. Dicho esto, el padre murió.
