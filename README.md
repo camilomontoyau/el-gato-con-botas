@@ -42,6 +42,8 @@ Fue así como el gato reclamó aquel palacio y las tierras circundantes para el 
 
 # Versión 2: Cuento de El gato con botas
 
+<p align="center"><img src="gato_con botas.png" width="350"/> </p> 
+
 Érase una vez un molinero que tenía tres hijos, a los que quería por igual. Sin embargo, el molinero era muy pobre y por eso cuando murió tan solo tenía para darles en herencia a sus hijos el molino, un burro y un gato, en apariencia bastante común.
 
 La repartición de los bienes, según la voluntad del fallecido, sería atendiendo a la edad de sus muchachos. Así, el molino correspondió al primogénito, el burro al hijo del medio, y el gato al más pequeño.
