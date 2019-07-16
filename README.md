@@ -40,7 +40,7 @@ Fue así como el gato reclamó aquel palacio y las tierras circundantes para el 
 
 # Versión 2: Cuento de El gato con botas
 
-https://raw.githubusercontent.com/camilomontoyau/el-gato-con-botas/imagen_version2/gato_con%20botas.png
+https://raw.githubusercontent.com/camilomontoyau/el-gato-con-botas/imagen_version2/gato_con%20botas.png/al/asset
 
 Érase una vez un molinero que tenía tres hijos, a los que quería por igual. Sin embargo, el molinero era muy pobre y por eso cuando murió tan solo tenía para darles en herencia a sus hijos el molino, un burro y un gato, en apariencia bastante común.
 
